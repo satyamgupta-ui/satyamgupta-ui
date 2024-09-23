@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on some project
 - 📫 you can reach on instagram @withonly.satyam  
 - 😄 happy
-- ⚡ everything is temporary
+- ⚡ everything is temporary.
 
